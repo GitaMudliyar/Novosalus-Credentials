@@ -1,2 +1,2 @@
-# Novosalus-Credentials
-This file includes credentials
+
+Novosalus Common mail:- Id: novosaluscommon@gmail.com Pass: Amc!@#840
