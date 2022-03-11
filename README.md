@@ -10,3 +10,5 @@ Deepa Mam FB official:- ID:- novosalustechnologies@gmail.com  Pass: L!f@2579
 Canva - Tatvamasi:- ID:- deepa.c.shah@gmail.com	Pass:- jingle!@#25
 
 Dr. Amit Sinkar Social Handles:- ID:- amitsinkar79@gmail.com Pass:- Aquarius@2022
+
+Youtube Video upload credentials:- ID:- aboutmyclinic.com Pass:- cliniforms
