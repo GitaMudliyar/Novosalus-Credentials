@@ -13,3 +13,5 @@ Dr. Amit Sinkar Social Handles:- ID:- amitsinkar79@gmail.com Pass:- Aquarius@202
 
 Youtube Video upload credentials:- ID:- aboutmyclinic.com Pass:- cliniforms
 Gmail :- www.aboutmyclinic@gmail.com Pass:- cliniforms
+
+Ashwini AMC Login :- ashvinisanap18@gmail.com Password: ashwini
